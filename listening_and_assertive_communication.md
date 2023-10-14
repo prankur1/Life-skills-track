@@ -39,10 +39,12 @@ There can be many such situations like avoiding conflict, maintaining relationsh
  There can be many such situations like customer service complaints, when dealing with unsatisfactory service. <br>
 Other scenarios can be like political debates, frustration or impatience.
 <br><br>
+
 ## Q7. When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?
 <br>
 Procastinating the things is a form of passive aggressive behaviour. Sometimes, talking negatively about someone behind their back is a passive-aggressive way to express frustration. Refusing to share important information or excluding someone from a conversation can be a passive-aggressive tactic.
 <br><br>
+
 ## Q8. How can you make your communication assertive? You can watch and analyse the videos, then think what would be a few steps you can apply in your own life? (Watch the videos first before answering this question.)
 <br>
 The very first thing to do is to understand my own thoughts and behaviour. I will try to be direct and clear and avoiding vague and passive language that can be misinterpreted. I will work on good communication habits like maintaining eye contact and using steady tone of voice.
